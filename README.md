@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Shreeti-Masrani
 - 👀 I’m interested in Learning new things and gaming :stuck_out_tongue:
-- 🌱 I’m currently doing CSE :two_hearts:
+- 🌱 Graduated :two_hearts:
 - 📫 How to reach me on Instagram. <br>
 - :musical_note: love music
 
